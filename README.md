@@ -1,0 +1,2 @@
+# skinbloxprivacy
+SkinBlox Privacy Policy
